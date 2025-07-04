@@ -17,4 +17,4 @@
 
 最重要的是，这一切完全免费。无需绑定账号、无需填写任何资料，只需点击进入，即可马上开始观看。简单、快速、安全，这正是我们为用户打造的极致体验。如果你正在寻找稳定、高质量的日本AV免费影片资源，这将是你理想的选择。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link]( https://github.com/ppw20250704/ppw9 ）</span>
